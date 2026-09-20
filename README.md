@@ -6,7 +6,8 @@
 <br> big chance im off tab... please whisper me if you wanna talk!! i check periodically
 > *♪ She wore blue velvet. Bluer than velvet was the night, softer than satin was the light From the stars ♪*
 
-<br> <img width="498" height="212" alt="blue-velvet-david-lynch (1)" src="https://github.com/user-attachments/assets/eabe52bf-edcc-485a-8116-b27e6a10e3ce" />
+<br> <img width="498" height="212" alt="blue-velvet-david-lynch (1)" src="https://github.com/user-attachments/assets/20890b4b-c31c-4fbb-8e23-5c34f17b4be0" />
+
 
 
 
